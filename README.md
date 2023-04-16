@@ -1,1 +1,0 @@
-# Islom_Tarixi
